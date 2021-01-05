@@ -28,3 +28,7 @@ I may update our Privacy Policy from time to time. Thus, you are advised to revi
 This policy is effective as of 2021-01-05
 Contact Us
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at orionpedals@gmail.com.
+
+
+### For support
+Please write to me at orionpedals@gmail.com.
